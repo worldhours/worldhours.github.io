@@ -1,1 +1,0 @@
-# worldhours.github.io
